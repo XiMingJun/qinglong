@@ -1,7 +1,7 @@
 
 /*
 喜爱帮
-注册：https://m.xiaicn.cn/invite/488913
+注册：https://m.xiaicn.cn/invite/2876867
 一个月4块左右。。。提现秒
 
 变量 xabzh  值：手机号1#密码1@手机号2#密码2
